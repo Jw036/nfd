@@ -1,2 +1,3 @@
-您好！欢迎使用本机器人 @www678vipcom
-有任何疑问请直接留言，管理员会及时回复您~
+Xin chào quý khách , chào mừng bạn sử dụng bot @daily678vip2
+Nếu có bất kỳ thắc mắc nào , xin hãy để lại tin nhắn trực tiếp , quản trị viên sẽ phản hồi kịp thời 
+Trang web chính thức : 678vip.com/678hi.com
